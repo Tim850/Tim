@@ -1,7 +1,7 @@
-Hoi Pip
+Hoi Tim
 
-Dit is mijn mooie GitHub pagina ding!
+Nu is dit mijn mooie GitHub pagina ding!
 
 
 
-NIET AANKOMEN
+WEL AANKOMEN
