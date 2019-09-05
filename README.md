@@ -1,19 +1,6 @@
-Hoi Tim
-
-Nu is dit mijn mooie GitHub pagina ding!
+Hallo allemaal,
+Wat fijn dat je hier bent!
 
 Joejoeee
 
 Groetjes Pip <3
-
-
-WEL AANKOMEN
-
-
-
-
-HOE DURF JE!!!!!!!!!!
-BLIJF AF!!!!!!!!!!
-
-
-TEST
