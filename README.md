@@ -12,3 +12,5 @@ Ik mag jou ook niet
 GEEN GRAPJE
 
 Schelden is onacceptabel!
+
+FUCK
