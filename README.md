@@ -14,3 +14,10 @@ GEEN GRAPJE
 Schelden is onacceptabel!
 
 FUCKING leuk
+
+
+
+
+
+
+Hoe gaat het met je leven Tim?
