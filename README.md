@@ -11,5 +11,4 @@ GRAPJE
 Ik mag jou ook niet
 GEEN GRAPJE
 
-VIEZE LUL
-D;
+Schelden is onacceptabel!
