@@ -1,2 +1,2 @@
-# Tim
+# DIT IS DIKKE TEKST
 Lol
