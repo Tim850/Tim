@@ -13,4 +13,4 @@ GEEN GRAPJE
 
 Schelden is onacceptabel!
 
-FUCK
+FUCKING leuk
